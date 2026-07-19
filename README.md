@@ -53,4 +53,4 @@ mindsafari/
 © 2026 Sanvira. All rights reserved.
 
 Website content and branding are proprietary. Contact
-[contact@sanvira.ai](mailto:contact@sanvira.ai) for inquiries.
+[ningappa.moodi@gmail.com](mailto:ningappa.moodi@gmail.com) for inquiries.
